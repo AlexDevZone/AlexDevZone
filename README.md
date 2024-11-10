@@ -7,7 +7,7 @@
 - 💡 Looking to collaborate on **game app development** and **programming tutoring opportunities**.
 
 ### How to Reach Me
-- 📬 Feel free to contact me at: **zhanglex881@gmail.com**
+- 📬 Feel free to contact me at: **zhangalex881@gmail.com**
 - 😄 Pronouns: (you can specify here if you’d like)
 
 ### Fun Fact
